@@ -1,0 +1,1 @@
+# LutfanDavi_jurnal04ISD
